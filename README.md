@@ -1,1 +1,0 @@
-# gctoekn.github.io
